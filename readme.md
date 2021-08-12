@@ -14,5 +14,7 @@
   de 8 gatitos, abandonados y desnutridos, es por ello que actualmente convivo con 12 animales en total. Si hay algo que me describa son ellos. 
   Ah, informacion clave, completamente fan de Harry Potter. 
   
+  Sí, la foto me quedo sumamente chica, pero bueno, claramente no la voy a modificar jeje.
+  
   
   
